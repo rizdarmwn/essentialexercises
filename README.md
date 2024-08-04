@@ -2,6 +2,7 @@
 
 ## Knee Workout
 
+- Backward Walking: 10 minutes - can use treadmill turned off
 - Tibialis Raise: 25 Reps
   - [Video](https://www.youtube.com/watch?v=DylhG4x8F1U)
 - FHL Calf Raise: 25 Reps
