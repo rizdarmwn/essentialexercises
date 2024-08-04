@@ -4,6 +4,8 @@
 
 **You can do this 3 days per week, for 12 weeks (and more!)**
 
+Overall video to explain almost all of these: [Video](https://www.youtube.com/watch?v=UzczU-Ihu0w)
+
 - Backward Walking: 10 minutes - can use treadmill turned off
 - Tibialis Raise: 25 Reps
   - [Video](https://www.youtube.com/watch?v=DylhG4x8F1U)
