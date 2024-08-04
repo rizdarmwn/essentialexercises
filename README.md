@@ -2,6 +2,8 @@
 
 ## Knee Workout
 
+**You can do this 3 days per week, for 12 weeks (and more!)**
+
 - Backward Walking: 10 minutes - can use treadmill turned off
 - Tibialis Raise: 25 Reps
   - [Video](https://www.youtube.com/watch?v=DylhG4x8F1U)
